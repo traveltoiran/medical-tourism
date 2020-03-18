@@ -84,3 +84,4 @@ MedoTrip in cooperation with the most reliable specialists, doctors, hospitals, 
 offers a wide range of medical and cosmetic services including hair transplant, weight loss surgeries (gastric sleeve, bypass, balloon, plication), cosmetic dentistry surgeries, eye care treatments, fertility treatments, rhinoplasty, face lifting, liposuction, and many other selected services.
 MedoTrip also provides travel services for the patients along with the healthcare services. These services include booking flights and accommodations, Visa, dedicated airport transfer, pickups and drop-offs, interpreting and tour guiding services, specific nursing, sightseeing tours and so on so forth.
 
+https://en.wikipedia.org/wiki/Medical_tourism
