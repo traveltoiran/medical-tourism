@@ -7,6 +7,7 @@ The trips are arranged by IrPersiatour by drawing up a schedule agreed upon by b
 Iran is considered one of the most successful countries in offering cosmetic and medical treatments. The country is known as the ‘nose job capital of the world’ for the great number of nose surgeries performed in the country. Modern hospitals and clinics with advanced technologies, coupled with experienced doctors and surgeons have put Iran in the spotlight of the medical world. IrPersiatour has so far hosted patients from some 55 countries, including the US, UK, Germany, Canada, the Middle East, and North Africa.
 The treatments provided by IrPersiatour are all performed in hospitals that enjoy the highest medical standards. We are proud to inform you that we provide free expert consultation to a great number of patients every day on a round-the-clock basis. We bring you the best health tourism services — with effective treatments, VIP services, transparency, and safeguarding the privacy of patients. Our goal is to give you a memorable experience that is beyond your expectations.
 
+https://www.imtj.com/news/record-health-tourism-numbers-iran/
 
 ## What is medical tourism?
 Medical tourism is when a person travels overseas to obtain medical, dental, or surgical care, while simultaneously enjoying this trip as a leisure vacation. Medical tourists are usually looking for a more budget-friendly, accessible, yet professional treatment. Most patients traveling abroad are seeking cancer treatments, cosmetic and plastic surgeries, fertility treatment, and bariatric surgery. Many Asian countries have seized this opportunity to duly provide them with their desired care to a point where now the continent is experiencing a boom in the medical tourism industry.
@@ -19,6 +20,8 @@ Iran’s medical tourists are of two types: Some are travelers coming from neigh
 Iran also has medical tourists visiting from more developed countries who are mostly looking for cosmetic, life-altering procedures including but not limited to the highly popular rhinoplasty, bariatric surgery, plastic surgery, hair transplantation, breast surgery, and gastric sleeves or bypasses.
 
 A key factor in choosing Iran between these groups is the Iranian surgeons’ high experience and proficiency in the field.
+
+https://irpersiatour.com/packages/medical/
 
 
 ## Find out why medical tourism is to be big business in Iran
@@ -40,25 +43,44 @@ Cosmetic operations in Iran target every area of the body, including the face, a
 It is worth mentioning that we provide a wide range of cosmetic operations that are popular internationally. In addition, we offer a combination of surgical and non-surgical cosmetic operation and a range of corrective and therapeutic surgeries for all patients from around the world. We also help our patients to obtain medical service from the best medical doctor in Iran.
 
 ## Popular medical tourism procedures in Iran
+Cosmetic plastic surgery includes surgical and nonsurgical procedures that enhance and reshape structures of the body to improve appearance and confidence. Healthy individuals with a positive outlook and realistic expectations are appropriate candidates for cosmetic procedures. Plastic surgery is a personal choice and should be done for yourself, not to meet someone else’s expectations or to try to fit an ideal image. Because it is elective, cosmetic surgery is usually not covered by health insurance.
 
 ### Rhinoplasty in IRAN
 The nose occupies the middle part of the face and contributes significantly to facial aesthetics. The defects of the size or shape of nose can be corrected through high-satisfaction plastic surgery.
+https://irpersiatour.com/packages/medical/rhinoplasty-in-iran/
 
 ### Hair transplant in IRAN
 The best techniques and equipment for hair transplantation in Tehran, more than 15 years of experience and hosts thousands of hair transplant patients annually and from all over the world
+https://irpersiatour.com/packages/medical/hair-transplant/
 
 ### BBL in IRAN (Brazilian Butt Lift)
 The cost of a Brazilian Butt Lift in Iran is around $1800, compared to its global cost of $8,000 thus, If you decide to have a Brazilian Butt Lift in Iran, reading this article can improve your knowledge about cost of Brazilian Butt Lift in Iran to a great extent and help you to choose the best city and hospital to perform Brazilian Butt Lift in Iran.
+https://irpersiatour.com/packages/medical/brazilian-buttock-lift/
 
 ### Breast augmentation surgery in IRAN
 Statistics show Iran is among five top countries in terms of cosmetic surgeries number performing every year. Increasing number of cosmetic surgeries in Iran now has reached to more than 220,000 surgeries a year. Breast surgeries are among the most performed ones in the country. High number of breast enhancement surgeries in Iran resulted in high experience of Iranian plastic surgeons. Because of lower costs in Iran, breast surgery price in Iran is less than a fourth of such a surgery in United States on average. In fact Iran is the cheapest country to do a cosmetic surgery in.
+https://irpersiatour.com/packages/medical/breast-augmentation/
 
 ### Face Lift in IRAN
 Facelift in Iran is a popular global operation that is attracting a great number of patients to Iran due to the experienced facelift surgeons and a high rate of facelift satisfaction.
 But what is facelift surgery? A facelift or rhytidectomy is a cosmetic surgery procedure designed to give the face a younger appearance. The lower part of the face is shaped by removing the excess skin.
-
+https://irpersiatour.com/packages/medical/face-lift/
 
 ### Body Sculpture in IRAN (Lipomatic)
 If you decide to have a Lipomatic in Iran, reading this article can improve your knowledge about cost of Lipomatic in Iran to a great extent and help you to choose the best city and hospital to perform Lipomatic in Iran.
-
 In this article we provide you with a comprehensive description of lipomatic in Iran, the cost of Lipomatic in Iran and the best Iranian lipomatic surgeons.
+https://irpersiatour.com/packages/medical/lipomatic/
+
+
+
+Medical tourism refers to people who travel to another country for obtaining medical or cosmetic services. In recent years, Iran has become a pioneer in this field among the Middle East and Asian countries and these days, it has become a very strong competitor even for the European and American countries. In this very potential medical tourism destination, MedoTrip as a medical tourism facilitator offers exceptional high-quality superior healthcare and travel services to international patients with the most affordable costs possible in comparison with all other countries which have things to say in this field.
+
+In fact, health tourism in Iran is a path towards sustainable developments for international relations with other countries all around the world. Accordingly, by choosing Iran medical tourism for performing the procedure of your various treatments, you’ll step in a fascinating path which leads toward not only the best healthcare possible but also a very memorable and reliable procedure for obtaining these prestigious services. Medical tourism in Shiraz for instance, where is one of the most attractive tourist destinations all around the world, is going to give you a precious experience of professional affordable health care services along with spending a few days in one of the most desirable cities all around the world.
+
+Medical tourism in Iran issues and challenges may be limited to your concerns about how your medical experience and stay in this country will be. And you’re completely right about this matter. In fact, MedoTrip is here to help you with any hesitations or doubts that might cross your mind about issues and challenges of medical tourism in Iran.
+
+MedoTrip in cooperation with the most reliable specialists, doctors, hospitals, and clinics all around Iran which are broad certified and professional in their specific fields, is ready to offer the most authentic medical and cosmetic services to those international patients who choose their healthcare services very precisely; along with all-inclusive travel and accommodation services for their pleasure. By trusting MedoTrip for performing your health care procedure in Iran, you’ll benefit the best plastic surgeons in Iran along with all other broad certified specialists who have a global reputation.
+
+offers a wide range of medical and cosmetic services including hair transplant, weight loss surgeries (gastric sleeve, bypass, balloon, plication), cosmetic dentistry surgeries, eye care treatments, fertility treatments, rhinoplasty, face lifting, liposuction, and many other selected services.
+MedoTrip also provides travel services for the patients along with the healthcare services. These services include booking flights and accommodations, Visa, dedicated airport transfer, pickups and drop-offs, interpreting and tour guiding services, specific nursing, sightseeing tours and so on so forth.
+
